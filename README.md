@@ -1,2 +1,2 @@
-[tiktokeR0QVMPVp5RwYS1NbYMo5BfSbs5ktgE5.txt](https://github.com/user-attachments/files/28656577/tiktokeR0QVMPVp5RwYS1NbYMo5BfSbs5ktgE5.txt)
-tiktok-developers-site-verification=eR0QVMPVp5RwYS1NbYMo5BfSbs5ktgE5
+[tiktokzAZpznsWxGlIGb3XZYVw1WWQroYTfCCp.txt](https://github.com/user-attachments/files/28663829/tiktokzAZpznsWxGlIGb3XZYVw1WWQroYTfCCp.txt)
+tiktok-developers-site-verification=zAZpznsWxGlIGb3XZYVw1WWQroYTfCCp
